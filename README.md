@@ -1,1 +1,0 @@
-https://hijack99.github.io/rsschool-cv/cv
